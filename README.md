@@ -23,3 +23,11 @@ From your fork, make a new branch. On the new branch, write a new question and a
 
 Resources:
 https://learngitbranching.js.org/
+1- hetlar - my father
+2- so smart - too honest 
+3- dog - i dont have a spirit animal 
+4- kosoksi embassess - loubya and 5obz mella 
+5- spride - coffeee
+6- Duamo milano -  stuttgart park 
+7- vikings - Avangers 
+ 
